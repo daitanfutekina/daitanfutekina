@@ -1,3 +1,3 @@
 ### Hi there 👋
---> i make "code"
-https://github.com/Daisyliu6/Daisyliu6/blob/master/me.gif
+i make "code
+https://c.tenor.com/L9ZFdfPjfcoAAAAM/blob-emoji.gif
